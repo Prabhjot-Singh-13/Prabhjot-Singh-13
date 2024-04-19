@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Prabhjot-Singh-13
 - 👀 I’m interested in Insights
 - 🌱 I’m currently learning AI
--  📫 How to reach me @Prabhsingh1666@gmail.com #Prabhjot-singh-13
+-  📫 How to reach me @Prabhsingh1666@gmail.com 
 
 
 <!---
